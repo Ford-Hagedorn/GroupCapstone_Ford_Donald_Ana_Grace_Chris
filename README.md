@@ -1,0 +1,2 @@
+# GroupCapstone_Ford_Donald_Ana_Grace_Chris
+Our group capstone project
